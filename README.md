@@ -1,4 +1,4 @@
-# Self-Discipline-Temp-Name
+# Self-Discipline-Comes within you
 
 Do you feel like you spend too much time on certain websites, or videogames? Do you wish you could cut down on the time
 that you use them but not just stop using them altogether?
